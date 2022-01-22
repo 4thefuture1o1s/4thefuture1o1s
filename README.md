@@ -1,7 +1,7 @@
 ### Hi there 👋
 
-GM 
-4thefuture1o1s on select platforms
+GM here 
+4thefuture1o1s on select platforms 🐦ℹ️
 
 - 💻 I’m currently working on coding for EVM
 - 🪴 I’m currently learning all things blockchain
